@@ -1,3 +1,5 @@
-👋 Hi, I’m @Nolwein
+## Hi there 🤙🏽
 
-https://raw.githubusercontent.com/salesp07/salesp07/output/github-contribution-grid-snake.svg
+- 🤸🏽‍♀️ Soon working on my yoga website
+- 🌱 I’m currently learning with @https://openclassrooms.com/fr/
+- 🖥️ Available for a job
